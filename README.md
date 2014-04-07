@@ -1,1 +1,1 @@
-Some Tricks
+Some Personnal Tricks
